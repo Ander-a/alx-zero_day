@@ -1,1 +1,1 @@
-My first readme
+Ready to reach my goals.
